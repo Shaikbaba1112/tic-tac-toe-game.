@@ -1,1 +1,1 @@
-this is a my first small mini digital game and also it is my first mini project. i think it is not a good but its my first creatiations so it will be encarage me to creating a more new ai models,tools,apps,wepsites.
+this is a my first small mini digital game and also it is my first mini project. i think it is not a good but its my first creation so it will be encarage me to creating a more new ai models,tools,apps,wepsites.
